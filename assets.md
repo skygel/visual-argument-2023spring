@@ -1,5 +1,4 @@
 Assets:
-“Agency Name/Author Name - stock.adobe.com."  
 https://stock.adobe.com/images/beauty-salon-objects-cosmetic-products-makeup-shop-elements-or-object-for-the-design-set-in-the-style-of-a-black-stroke-drawn-by-hands/212896629?prev_url=detail Created By: Kyrylenko, Published on Adobe Stock protected under Standard Adobe Licensing 
 
 https://stock.adobe.com/images/lineart-drawing-of-household-tools-with-transparent-background-for-learn-to-coloring/559951746?prev_url=detail&asset_id=559951746 Created by: Eva, Published on Adobe Stock protected under Standard Adobe Licensing 
